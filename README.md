@@ -1,2 +1,2 @@
-# We building Something Awesome!!!
+# builded Something Awesome!!!
 About my self introduce to you
